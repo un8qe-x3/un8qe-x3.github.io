@@ -6,6 +6,6 @@ But **_you're_** still here. The people who wants to; either know more about me,
 
 ...
 
-But **_you're_** still here... the true fans, the eople who wants to read and know and is intrested and invested in me. So hey, you, I'm a ddlc fan, a miku fan, a doctor who fan (nuwho), a minecraft player, a cs2 player, i'm on reddit, discord, github (obv), youtube, instagram, etc.
+But **_you're_** still here... the true fans, the people who wants to read and know and is intrested and invested in me. So hey, you, I'm a ddlc fan, a miku fan, a doctor who fan (nuwho), a minecraft player, a cs2 player, i'm on reddit, discord, github (obv), youtube, instagram, etc.
 
 Now really fuck off. I love you. <3
